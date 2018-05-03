@@ -1,1 +1,1 @@
-[Feature Requests](http://feathub.com/farpras/music?format=svg)](http://feathub.com/farpras/music)
+Instrumental Suggestions: http://feathub.com/farpras/music
